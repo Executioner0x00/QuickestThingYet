@@ -1,0 +1,1 @@
+This is my quickest trojan yet, I do not wanna explain anything about it.
